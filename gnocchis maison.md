@@ -1,5 +1,5 @@
 # "Les gnocchis maison" selon Gordon Ramsay
-## http://www.paris-premiere.fr/documentaire-gordon_ramsay_les_recettes_du_chef_3_etoiles/photos-les_gnocchis_maison_selon_gordon_ramsay-52116/photo-733526
+[Référence](http://www.paris-premiere.fr/documentaire-gordon_ramsay_les_recettes_du_chef_3_etoiles/photos-les_gnocchis_maison_selon_gordon_ramsay-52116/photo-733526)
 
 * Coupez vos pommes de terre au four en deux, videz-les à la petite cuillère. Vous pouvez également prendre des pommes de terre cuites à l'eau.
 * Pressez le contenu des pommes de terre à l'aide d'un presse-purée ou écrasez-le à la fourchette.
