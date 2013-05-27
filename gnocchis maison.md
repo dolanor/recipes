@@ -15,3 +15,4 @@
 * Ajoutez un peu de thym et zestez un citron.
 * Dressez et ajoutez un peu de parmesan avant de servir.
 
+[Autre recette à rajouter](http://www.undejeunerdesoleil.com/2012/01/comment-preparer-les-gnocchi-de-pomme.html)
